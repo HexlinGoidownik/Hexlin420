@@ -1,3 +1,1 @@
-Bandyta
-
-<img src="https://cdn.discordapp.com/attachments/852781769023553567/931196466209370212/Social-Terrorist.png" alt="">
+Wybitny użytkownik internetu, pasjonata propagowania ideii totalitarnych oraz pogromca Fołtynów.
