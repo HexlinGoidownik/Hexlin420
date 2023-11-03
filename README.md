@@ -1,1 +1,1 @@
-Wybitny użytkownik internetu, pasjonata propagowania ideii totalitarnych oraz pogromca Fołtynów.
+ROBOTNICZA PARTIA STRZELA DO ROBOTNIKOW? CO KURWA ALE JAK TO TO MIALA BYC KOMUNKA
